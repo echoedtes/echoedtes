@@ -12,7 +12,7 @@ Whisper to Interact if I'm not replying, might be off tab or mindlessly doing so
 
 ![Walking](roxas.gif)
 
-︶︶︶︶︶︶᧔♡᧓︶︶︶︶︶︶
+︶︶︶︶︶︶ꔫ︶︶︶︶︶︶
 
 
 𐔌 SDIYBT!! CHeck out caarrd byf pls!!
