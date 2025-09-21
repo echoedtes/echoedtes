@@ -8,7 +8,7 @@
 
 
         
-Whisper to Interact if I'm not replying, might be off tab or mindlessly doing somethinnn like droolin at my screen.
+Whisper to Interact if I'm not replying, might be off tab or mindlessly doing somethinnn like droolin while watching yt.
 
 ![Walking](roxas.gif)
 
