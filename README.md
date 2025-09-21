@@ -27,6 +27,7 @@ Sign ata if wants to. okay?
 Call me by Istvan or Ekko ,, Any/Preferred masc terms
 
 C+H = YES! YAY!
+
 KH, YGO and FF fans encouraged to int.
 
 
