@@ -32,6 +32,8 @@ C+H = OKAY! YAY! KH, YGO and FF fans encouraged to int.
 ︶︶︶︶︶︶︶︶︶︶︶︶︶
 
 
+[Carrd](https://ekkointroduct.carrd.co/)
+𓂃
 [Instagram](https://www.instagram.com/cultsren/)
 𓂃
 [X/Twitter](https://x.com/echoedtes)
