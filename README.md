@@ -22,12 +22,11 @@ Sign ata if wants to. okay?
 
 
 
-:  光 › Roxas & Sora yume {sharing! ♡} Any/Preferred masc terms
+:  光 › Roxas & Sora yume {sharing! ♡} Unofficial ceo of Soriku and docks!!
 
-Call me by Istvan or Ekko ,, unofficial ceo of Soriku and docks!!
+Call me by Istvan or Ekko ,, Any/Preferred masc terms
 
 C+H = YES! YAY!
-
 KH, YGO and FF fans encouraged to int.
 
 
