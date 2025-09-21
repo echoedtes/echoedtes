@@ -26,7 +26,9 @@ Sign ata if wants to. okay?
 
 Call me by Istvan or Ekko ,, unofficial ceo of Soriku and docks!!
 
-C+H = OKAY! YAY! KH, YGO and FF fans encouraged to int.
+C+H = YES! YAY!
+
+KH, YGO and FF fans encouraged to int.
 
 
 ︶︶︶︶︶︶︶︶︶︶︶︶︶
