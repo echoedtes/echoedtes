@@ -1,6 +1,6 @@
 
 
-# LALALA
+# "You deserve as much as I do to be your own person."
 <h5 align="center"
 
 
@@ -25,6 +25,8 @@ Sign ata if wants to. okay?
 Call me by Istvan or Ekko ,, Any/Preferred masc terms
 
 C+H = YES! YAY!
+
+Mostly around docks in safe serv #1
 
 KH, YGO and FF fans encouraged to int.
 
