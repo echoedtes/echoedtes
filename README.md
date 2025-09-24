@@ -20,7 +20,7 @@ Whisper to Interact if I'm not replying, might be off tab or mindlessly doing so
 Sign ata if wants to. okay?
 
 
-:  光 › Roxas & Sora yume {sharing! ♡} Unofficial ceo of Soriku and roaming arounnd!!
+:  光 › Roxas & Sora yume (sharing! ♡) Unofficial ceo of Soriku and roaming arounnd!!
 
 Call me by Istvan or Ekko ,, Any/Preferred masc terms
 
