@@ -28,7 +28,7 @@ C+H = YES! YAY!
 
 Mostly around docks in safe serv #1
 
-KH, YGO, DMC and FF fans encouraged to int.
+KH, YGO and FF fans encouraged to int.
 
 
 ︶︶︶︶︶︶︶︶︶︶︶︶︶
