@@ -23,7 +23,7 @@
 <p align=right>
 
 <details><summary>INTRODUCTION..</summary>
-Patty, Ekko or Itsvan, whichever you feel that resonates with you most when it comes to portraying me. I really don't mind. Please check my carrd to see how I prefer to socialise.
+Patty, Ekko or Itsvan, whichever you feel that resonates with you most when it comes to portraying me, I really don't mind. Please check my carrd to see how I prefer to socialise.
 </details>
 
 <img src="https://github.com/echoedtes/echoedtes/blob/main/Untitled73_20260310193502.PNG" width=30% height=30%/>
