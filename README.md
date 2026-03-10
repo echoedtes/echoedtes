@@ -2,7 +2,7 @@
 
 <img src="https://github.com/echoedtes/echoedtes/blob/main/Untitled73_20260307015632.PNG" width=75% height=75%/>
 
-<h3 align="center"> 📽𓈒 ⨈𝐡𝓲ᣵ⍴𝘦𝝘 ʈʘ 𝚰𝞰ʈ𝘦𝝘Ƌᶜʈ 𝓲ƒ 𝚰❜㎥ 𝞰ʘʈ 𝝘𝘦⍴𝚰𝘆𝓲𝞰𝗴, 𝚰 ᶜʘ𝙪𝚰𝙙 𝕓𝘦 ʘƒƒʈƋ𝕓 𝙙𝝘ʘʘ𝚰𝓲𝞰𝗴 ㎥𝓲𝞰𝙙𝚰𝘦ᣵᣵ𝚰𝘆 </h3>
+<h3 align="center"> 📽𓈒 ⨈𝐡𝓲ᣵ⍴𝘦𝝘 ʈʘ 𝚰𝞰ʈ𝘦𝝘Ƌᶜʈ 𝓲ƒ 𝚰❜㎥ 𝞰ʘʈ 𝝘𝘦⍴𝚰𝘆𝓲𝞰𝗴, 𝚰 ᶜʘ𝙪𝚰𝙙 𝕓𝘦 ʘƒƒ ʈƋ𝕓 𝙙𝝘ʘʘ𝚰𝓲𝞰𝗴 ㎥𝓲𝞰𝙙𝚰𝘦ᣵᣵ𝚰𝘆 </h3>
 
 <h5 align="center"/>
 
@@ -57,6 +57,7 @@ I love: <i>Kingdom Hearts</i>, Final Fantasy (VII, X, XV, XVI), Devil May Cry, Y
 <p> $${\color{yellow}"No \space one \space would \space miss \space me..."}$$ </p>
 
 <p> $${\color{red}"That's \space not \space true... \space I \space would."}$$ </p>
+
 
 
 <h5 align="center"/>
