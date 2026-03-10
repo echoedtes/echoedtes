@@ -39,7 +39,7 @@ I enjoy Lord X, as you can see for yourself here. I have liked him ever since he
 </details>
 
 <details><summary>INTERESTS..</summary>
-I love: <i>Kingdom Hearts</i>, Final Fantasy (VII, X, XV, XVI), Devil May Cry, Yu-Gi-Oh, ULTRAKILL, <i>Sonic the Hedgehog</i>, Sonic.EXE and a lot more…
+I love: <i>Kingdom Hearts</i>, Final Fantasy (VII, X, XV, XVI), Devil May Cry, Yu-Gi-Oh, ULTRAKILL, Madness Combat, <i>Sonic the Hedgehog</i>, Sonic.EXE and a lot more…
 </details> 
 
 <img src="https://github.com/echoedtes/echoedtes/blob/main/Untitled73_20260310204009.PNG" width=30% height=30%/>
