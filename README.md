@@ -40,11 +40,7 @@ I love: <i>Kingdom Hearts</i>, Final Fantasy (VII, X, XV, XVI), Devil May Cry, Y
 </p>
 
 
-
-
 <img src="https://github.com/echoedtes/echoedtes/blob/main/Untitled73_20260310185840.PNG" width=55% height=55%/>
-
-
 
 
 [Carrd](https://ekkointroduct.carrd.co/)
@@ -54,20 +50,12 @@ I love: <i>Kingdom Hearts</i>, Final Fantasy (VII, X, XV, XVI), Devil May Cry, Y
 [X/Twitter](https://x.com/echoedtes)
 
 
-
-
 </h5>
-
-
 
 
 <p> $${\color{yellow}"No \space one \space would \space miss \space me..."}$$ </p>
 
-<p align=right>
-  That's not true... I would.
-</p>
-</h3>
-
+<p> $${\color{red}"That's \space not \space true... \space I \space would."}$$ </p>
 
 
 <h5 align="center"/>
