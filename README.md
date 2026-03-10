@@ -54,7 +54,7 @@ I love: <i>Kingdom Hearts</i>, Final Fantasy (VII, X, XV, XVI), Devil May Cry, Y
 </h5>
 
 
-<p> $${\color{yellow}"No \space one \space would \space miss \space me..."}$$ </p>
+<p> $${\color{yellow}"No \space one \space would \space miss \space me."}$$ </p>
 
 <p> $${\color{red}"That's \space not \space true... \space I \space would."}$$ </p>
 
