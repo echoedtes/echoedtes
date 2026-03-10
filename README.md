@@ -1,13 +1,20 @@
-<h5 align="center"/>
+<h5 align="center">
 
 <img src="https://github.com/echoedtes/echoedtes/blob/main/Untitled73_20260307015632.PNG" width=75% height=75%/>
 
-<h3 align="center"> Whisper to Interact if I'm not replying, might be off tab or mindlessly doing somethinnn like droolin while watching yt. </h3>
-
-
-
+<h3 align="center"> 📽𓈒 ⨈𝐡𝓲ᣵ⍴𝘦𝝘 ʈʘ 𝚰𝞰ʈ𝘦𝝘Ƌᶜʈ 𝓲ƒ 𝚰❜㎥ 𝞰ʘʈ 𝝘𝘦⍴𝚰𝘆𝓲𝞰𝗴, 𝚰 ᶜʘ𝙪𝚰𝙙 𝕓𝘦 ʘƒƒʈƋ𝕓 𝙙𝝘ʘʘ𝚰𝓲𝞰𝗴 ㎥𝓲𝞰𝙙𝚰𝘦ᣵᣵ𝚰𝘆 </h3>
 
 <h5 align="center"/>
+
+[Carrd](https://ekkointroduct.carrd.co/)
+𓂃
+[Instagram](https://www.instagram.com/cultsren/)
+𓂃
+[X/Twitter](https://x.com/echoedtes)
+
+
+
+
 
 <img src="https://github.com/echoedtes/echoedtes/blob/main/Untitled73_20260310185840.PNG" width=55% height=55%/>
 
@@ -16,7 +23,7 @@
 <p align=right>
 
 <details><summary>INTRODUCTION..</summary>
-Patty, Ekko or Itsvan, whichever you feel that resonates with you most when it comes to portraying me. I really don't mind.
+Patty, Ekko or Itsvan, whichever you feel that resonates with you most when it comes to portraying me. I really don't mind. Please check my carrd to see how I prefer to socialise.
 </details>
 
 <img src="https://github.com/echoedtes/echoedtes/blob/main/Untitled73_20260310193502.PNG" width=30% height=30%/>
@@ -42,12 +49,6 @@ I love: <i>Kingdom Hearts</i>, Final Fantasy (VII, X, XV, XVI), Devil May Cry, Y
 
 <img src="https://github.com/echoedtes/echoedtes/blob/main/Untitled73_20260310185840.PNG" width=55% height=55%/>
 
-
-[Carrd](https://ekkointroduct.carrd.co/)
-𓂃
-[Instagram](https://www.instagram.com/cultsren/)
-𓂃
-[X/Twitter](https://x.com/echoedtes)
 
 
 </h5>
