@@ -53,15 +53,15 @@ I love: <i>Kingdom Hearts</i>, Final Fantasy (VII, X, XV, XVI), Devil May Cry, Y
 
 
 
-<h3 align=center
-<p align=left>
-        No one would miss me...
+<p>
+No one would miss me...
 </p>
-<p align=right>
-       That's not true... I would.
+<p>
+That's not true... I would.
 </p>
 </h3>
 
 
 
+<h5 align="center"/>
 <img src="https://github.com/echoedtes/echoedtes/blob/main/Untitled73_20260307025711.PNG" width=75% height=75%/>
