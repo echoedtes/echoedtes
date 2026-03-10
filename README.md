@@ -15,7 +15,7 @@
 
 <p align=right>
 
-<details><summary>Introduction..</summary>
+<details><summary>INTRODUCTION..</summary>
 Patty, Ekko or Itsvan, whichever you feel that resonates with you most when it comes to portraying me. I really don't mind.
 </details>
 
@@ -35,6 +35,8 @@ I enjoy Lord X, as you can see for yourself here. I have liked him ever since he
 I love: <i>Kingdom Hearts</i>, Final Fantasy (VII, X, XV, XVI), Devil May Cry, Yu-Gi-Oh, ULTRAKILL, <i>Sonic the Hedgehog</i>, Sonic.EXE and a lot more…
 </details> 
 
+<img src="https://github.com/echoedtes/echoedtes/blob/main/Untitled73_20260310204009.PNG" width=30% height=30%/>
+
 </p>
 
 
@@ -53,11 +55,16 @@ I love: <i>Kingdom Hearts</i>, Final Fantasy (VII, X, XV, XVI), Devil May Cry, Y
 
 
 
-<p>
-No one would miss me...
-</p>
-<p>
-That's not true... I would.
+
+</h5>
+
+
+
+
+<p> $${\color{yellow}"No \space one \space would \space miss \space me..."}$$ </p>
+
+<p align=right>
+  That's not true... I would.
 </p>
 </h3>
 
