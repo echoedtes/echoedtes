@@ -30,7 +30,7 @@ Mostly around docks in safe serv #1
 
 KH, YGO and FF fans encouraged to int.
 
-miggght rmk this soon lalala
+guys I swear I'll rmk this soon I PPROMISEEE
 
 
 ︶︶︶︶︶︶︶︶︶︶︶︶︶
