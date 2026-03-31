@@ -28,7 +28,7 @@ Patty, Ekko or Itsvan, whichever you feel that resonates with you most when it c
 
 <img src="https://github.com/echoedtes/echoedtes/blob/main/Untitled73_20260310193502.PNG" width=30% height=30%/>
 <details><summary>ABOUTS..</summary>
-I enjoy Lord X, as you can see for yourself here. I have liked him ever since he entered my line of sight, and since then he has been someone I dote on for comfort… I see no reason to keep him to myself either, I am a shared yume and I want everyone to experience the same love I have for characters I enjoy such as: Sora, Roxas, Sonic and X.
+I enjoy Lord X, as you can see for yourself here. I have liked him ever since I saw him, and since then he has been someone I dote on for comfort… I see no reason to keep him to myself either, I am a shared yume and I want everyone to experience the same love I have for characters I enjoy such as: Sora, Roxas, Judai, Sonic and X.
 </details>
 
 <details><summary>BOUNDERIES..</summary>
