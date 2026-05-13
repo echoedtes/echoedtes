@@ -28,7 +28,7 @@ Ekko or Itsvan, whichever you feel that resonates with you most when it comes to
 
 <img src="https://github.com/echoedtes/echoedtes/blob/main/Untitled73_20260310193502.PNG" width=30% height=30%/>
 <details><summary>ABOUTS..</summary>
-I enjoy Lord X, I love him teehee. I see no reason to keep him to myself either, I am a shared yume and I want everyone to experience the same love I have for characters I like ok?
+I enjoy Lord X, I love him teehee. I see no reason to keep him to myself either, I am a shared yume and I want everyone to enjoy themselves ok we are just whimsy and full of joyjoy joyous yay!
 </details>
 
 <details><summary>BOUNDERIES..</summary>
